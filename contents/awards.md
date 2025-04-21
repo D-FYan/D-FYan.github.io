@@ -1,13 +1,9 @@
-- National Scholarship of Graduate Student, 2024.
+- National Encouragement Scholarship, 2022.
 
-- First-prize Scholarship of CUMT, 2024.
+- ​​Outstanding Undergraduate Scholarship​​, 2020–2022 (Consecutively for three years).
 
-- First-prize Scholarship of CUMT, 2023.
+- ​Third Prize (Excellent Award)​​ in the 11th "Challenge Cup" National College Students' Extracurricular Academic and Technological Works Competition
 
-- Freshman Scholarship of CUMT, 2022.
+- Third Prize (National Level)​​ in the FLTRP "Guocai Cup" National English Writing Competition.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
-- First-prize Scholarship of CUMT, 2019.
+- Third Prize (National Level)​​ in the FLTRP "Guocai Cup" National English Reading Competition
